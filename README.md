@@ -1,1 +1,1 @@
-# juljuliks.github.io
+https://juljuliks.github.io/mogo/
